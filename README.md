@@ -1,1 +1,0 @@
-# alansnyder.github.io
